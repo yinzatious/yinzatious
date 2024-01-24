@@ -9,5 +9,5 @@
 <p align="center">  . ⲙⲩ ⲣⲉꞅ𝛓ⲟⲛⲁ𝓵ⲓⲧⲩ 𝓿ⲁꞅⲓⲉ𝛓 𝓯ꞅⲟⲙ ⲧⲓⲙⲉ ⲧⲟ ⲧⲓⲙⲉ . 
 
 <p align="center">
-  <img width="2000" height="200" src="https://i.pinimg.com/originals/c4/de/8e/c4de8e1f92e248925a4a385d7393bfc1.gif">
+  <img width="2000" height="200" src=https://media.discordapp.net/attachments/860237906588991488/1019632376827105420/IMG_2321.gif?ex">
 </p>
