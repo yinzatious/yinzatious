@@ -9,5 +9,5 @@
 <p align="center">  . ⲙⲩ ⲣⲉꞅ𝛓ⲟⲛⲁ𝓵ⲓⲧⲩ 𝓿ⲁꞅⲓⲉ𝛓 𝓯ꞅⲟⲙ ⲧⲓⲙⲉ ⲧⲟ ⲧⲓⲙⲉ . 
 
 <p align="center">
-  <img width="2000" height="400" src="https://i.pinimg.com/originals/c2/d0/01/c2d001a4799453ba6060a0433338810b.gif">
+  <img width="2000" height="200" src="https://i.pinimg.com/originals/c2/d0/01/c2d001a4799453ba6060a0433338810b.gif">
 </p>
