@@ -5,5 +5,3 @@
 </p>
 <p align="center"> ! ɾҽαԃ ρα𝜏ɾҽσɳ ßყι !
 <p align="center">  . ⲙⲩ ⲣⲉꞅ𝛓ⲟⲛⲁ𝓵ⲓⲧⲩ 𝓿ⲁꞅⲓⲉ𝛓 𝓯ꞅⲟⲙ ⲧⲓⲙⲉ ⲧⲟ ⲧⲓⲙⲉ . 
-<p align="center">
-  <img width="460" height="300" src="https://media.discordapp.net/attachments/795593658370883592/1153489826285363220/IMG_9255.png?>
