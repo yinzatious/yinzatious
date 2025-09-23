@@ -4,6 +4,8 @@
 <p align="center"> ! READ patreon, before you be my friend !
 <p align="center"> ────── ⋆⋅ 𖤓 ⋅⋆ ──────
 <p align="center">  Sign my atabook if you want!
+
+#
     
  [![Spotify](https://spotify-github-profile.kittinanx.com/api/view?uid=dstyi8gwgu7smen3sn0t721i1&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=dstyi8gwgu7smen3sn0t721i1&redirect=true)
 </div>
