@@ -4,8 +4,10 @@
 <p align="center"> ! READ patreon, before you be my friend !
 <p align="center"> ────── ⋆⋅ ⚚ ⋅⋆ ──────
 <p align="center">  Sign my atabook if you want!
-
+ <p align="center">
+     <img width="100" height="100" src="https://y2k.neocities.org/blinkiez/newbatch/uP8nSvW.gif"
+            
 #
-    
+
  [![Spotify](https://spotify-github-profile.kittinanx.com/api/view?uid=dstyi8gwgu7smen3sn0t721i1&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=dstyi8gwgu7smen3sn0t721i1&redirect=true)
 </div>
