@@ -1,6 +1,6 @@
 <p align="center"> · · ─ ·𖥸· ─ · ·
     <p align="center">
-  <img width="600" height="342" src="https://i.pinimg.com/1200x/fc/65/2d/fc652d5f928b8542cc9f5888ff95a615.jpg">
+  <img width="600" height="342" src="https://cdn.discordapp.com/attachments/910420166989475860/1422174097701339177/Untitled390_20250929185004.png?ex=68dbb657&is=68da64d7&hm=ee39cd9f45f8741a6e409e6a6a2b98e25ced663916e156643259a675c57e4ccd&">
 <p align="center"> ! READ patreon, before you be my friend !
 <p align="center"> ────── ⋆⋅ ⚚ ⋅⋆ ──────
 <p align="center">  Sign my atabook if you want!
