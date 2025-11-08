@@ -1,6 +1,6 @@
 <p align="center"> ꧁⎝ 𓆩༺⚚༻𓆪 ⎠꧂
     <p align="center">
-  <img width="400" height="342" src="https://cdn.discordapp.com/attachments/910420166989475860/1435181138497769512/Untitled429_20251104161707.png?ex=690b0817&is=6909b697&hm=edc7c431be1296d234130c3722a941b1e0db1f3731c82ca313d1259c7149b609">
+  <img width="400" height="342" src="https://cdn.discordapp.com/attachments/910420166989475860/1435181138497769512/Untitled429_20251104161707.png?ex=690fa557&is=690e53d7&hm=1dc5970e8c686964be8ff8f6ae7705843840c8d5c2c0a46c1df717a365d7fe29&">
 <p align="center"> ╭──────.★..─────────────────────────╮
 <p align="center">          ◟  ͜ 𓈒 ࣪  ❛        𓈒       READ my  Patreon bybmf     𝄢𓈒   ࣪
 <p align="center">    𝄞  ࣪   𓈒ᴗᴗ    ࣪  ⁺   𓂃  ࣪    Sign my atabook if you want   𓂋 𓈒  ࣪♬
