@@ -7,7 +7,7 @@
     <p align="center">  <img width="100" height="100" src="https://y2k.neocities.org/blinkiez/newbatch/uP8nSvW.gif"> <img width="100" height="100" src="https://y2k.neocities.org/blinkiez/newbatch/bnormalpeople.gif"> <img width="100" height="100" src="https://plasticdino.neocities.org/blinkie/tranz.gif">
 <p align="center"> ╰──────────────────────..★.─────────╯
 
- ![](https://komarev.com/ghpvc/?username=your-github-yinzatious&color=5A437A&label=PEOPLE+WHO+STALK+ME+.ᐟ)
+ ![](https://komarev.com/ghpvc/?username=your-github-yinzatious&color=002c70&label=PEOPLE+WHO+STALK+ME+.ᐟ)
               
 #
 
