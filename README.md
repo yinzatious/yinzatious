@@ -9,8 +9,7 @@
     <p align="center">  <img width="100" height="100" src="https://y2k.neocities.org/blinkiez/newbatch/uP8nSvW.gif"> <img width="100" height="100" src="https://y2k.neocities.org/blinkiez/newbatch/bnormalpeople.gif"> <img width="100" height="100" src="https://plasticdino.neocities.org/blinkie/tranz.gif">
 <p align="center"> <img width="380" height="380" src="https://pixelsafari.neocities.org/dividers/bloodinverted.gif">
 
-
- ![](https://komarev.com/ghpvc/?username=your-github-yinzatious&color=002c70&label=PEOPLE+WHO+STALK+ME+.ᐟ)
+<p align="center"><img src="https://komarev.com/ghpvc/?username=your-github-yinzatious&amp;color=002c70&amp;label=PEOPLE+WHO+STALK+ME+.ᐟ" alt=""></p>
               
 #
 
