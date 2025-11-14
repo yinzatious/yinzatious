@@ -1,6 +1,6 @@
 <p align="center"> ꧁⎝ 𓆩༺⚚༻𓆪 ⎠꧂
     <p align="center">
-  <img width="400" height="342" src="https://cdn.discordapp.com/attachments/910420166989475860/1438232126767239188/output-onlinegiftools-ezgif.com-cut.gif?ex=6916218c&is=6914d00c&hm=2162777c13d0b6372b554e1310372ad10093ed0930d32cf7524aa267f874e5c0&">
+  <img width="400" height="342" src="https://cdn.discordapp.com/attachments/910420166989475860/1438232126767239188/output-onlinegiftools-ezgif.com-cut.gif?ex=6917730c&is=6916218c&hm=7a9b287c213866e39a15c0a9b229f0fc595f9231ada03bed92b1836db6fd15f8&">
 <p align="center"> ╭──────.★..─────────────────────────╮
 <p align="center">          ◟  ͜ 𓈒 ࣪  ❛        𓈒       READ my  Patreon bybmf     𝄢𓈒   ࣪
 <p align="center">    𝄞  ࣪   𓈒ᴗᴗ    ࣪  ⁺   𓂃  ࣪    Sign my atabook if you want   𓂋 𓈒  ࣪♬
