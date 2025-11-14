@@ -14,5 +14,4 @@
 #
 
  
- [![Spotify](https://spotify-github-profile.kittinanx.com/api/view?uid=dstyi8gwgu7smen3sn0t721i1&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=dstyi8gwgu7smen3sn0t721i1&redirect=true)
-</div>
+<p><a href="https://spotify-github-profile.kittinanx.com/api/view?uid=dstyi8gwgu7smen3sn0t721i1&amp;redirect=true"><img src="https://spotify-github-profile.kittinanx.com/api/view?uid=dstyi8gwgu7smen3sn0t721i1&amp;cover_image=true&amp;theme=spotify-embed&amp;show_offline=true&amp;background_color=121212&amp;interchange=false&amp;profanity=false&amp;bar_color=ffffff&amp;bar_color_cover=false&amp;mode=dark" alt="spotify-github-profile"></a></p>
