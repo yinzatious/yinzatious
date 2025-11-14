@@ -5,7 +5,7 @@
   <img width="400" height="342" src="https://cdn.discordapp.com/attachments/910420166989475860/1438232126767239188/output-onlinegiftools-ezgif.com-cut.gif?ex=6917730c&is=6916218c&hm=7a9b287c213866e39a15c0a9b229f0fc595f9231ada03bed92b1836db6fd15f8&">
     
 <p align="center"> <img width="380" height="380" src="https://pixelsafari.neocities.org/dividers/blood.gif">
-<p align="center">       𝕽𝖊𝖆𝖉 𝖒𝖞 𝖕𝖆𝖙𝖗𝖊𝖔𝖓 𝖇𝖊𝖋𝖔𝖗𝖊 𝖞𝖔𝖚 𝖎𝖓𝖙𝖊𝖗𝖆𝖈𝖙
+<p align="center">       ʀᴇᴀᴅ ᴍʏ ᴘᴀᴛʀᴇᴏɴ ʙᴇꜰᴏʀᴇ ʙᴇᴄᴏᴍɪɴɢ ꜰʀɪᴇɴᴅꜱ
     <p align="center">  <img width="100" height="100" src="https://y2k.neocities.org/blinkiez/newbatch/uP8nSvW.gif"> <img width="100" height="100" src="https://y2k.neocities.org/blinkiez/newbatch/bnormalpeople.gif"> <img width="100" height="100" src="https://plasticdino.neocities.org/blinkie/tranz.gif">
 <p align="center"> <img width="380" height="380" src="https://pixelsafari.neocities.org/dividers/bloodinverted.gif">
 
