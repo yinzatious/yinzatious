@@ -9,7 +9,7 @@
     <p align="center">  <img width="100" height="100" src="https://blinkies.cafe/b/blinkiesCafe-jC.gif"> <img width="100" height="100" src="https://blinkies.cafe/b/blinkiesCafe-En.gif"> <img width="100" height="100" src="https://blinkies.cafe/b/blinkiesCafe-uf.gif">
 <p align="center"> <img width="380" height="380" src="https://pixelsafari.neocities.org/dividers/blackthornyroses.gif">
 
-<p align="center"><img src="https://komarev.com/ghpvc/?username=your-github-yinzatious&amp;color=002c70&amp;label=PEOPLE+WHO+STALK+ME+.ᐟ" alt=""></p>
+<p align="center"><img src="https://komarev.com/ghpvc/?username=your-github-yinzatious&amp;color=000000&amp;label=PEOPLE+WHO+STALK+ME+.ᐟ" alt=""></p>
               
 #
 
