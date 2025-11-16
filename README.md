@@ -6,7 +6,7 @@
     
 <p align="center"> <img width="380" height="380" src="https://pixelsafari.neocities.org/dividers/blackmirror.gif">
 <p align="center">       ʀᴇᴀᴅ ᴍʏ ᴘᴀᴛʀᴇᴏɴ ʙᴇꜰᴏʀᴇ ʙᴇᴄᴏᴍɪɴɢ ꜰʀɪᴇɴᴅꜱ
-    <p align="center">  <img width="100" height="100" src="https://blinkies.cafe/b/blinkiesCafe-fF.gif"> <img width="100" height="100" src="https://blinkies.cafe/b/blinkiesCafe-jC.gif"> <img width="100" height="100" src="https://blinkies.cafe/b/blinkiesCafe-uf.gif">
+    <p align="center">  <img width="100" height="100" src="https://cdn.discordapp.com/attachments/910420166989475860/1439529507248930900/blinkiesCafe-dq.gif?ex=691ad9d3&is=69198853&hm=d6d2fbc00b99a6696d53ca31e6adfa4049c02676cb8a834291b0c2cd8ef3b7df&"> <img width="100" height="100" src="https://cdn.discordapp.com/attachments/910420166989475860/1439529513384939560/blinkiesCafe-o9.gif?ex=691ad9d5&is=69198855&hm=a174c105f9e7f9f2db0418dbcde4f531d4191d27d12520f0960442314c032a55&"> <img width="100" height="100" src="https://cdn.discordapp.com/attachments/910420166989475860/1439529527872323656/blinkiesCafe-jT.gif?ex=691ad9d8&is=69198858&hm=46cc88ac68c2160b5579598ed4e864654e159cbd631b49fbb033bf0353df3212&">
 <p align="center"> <img width="380" height="380" src="https://pixelsafari.neocities.org/dividers/blackthornyroses.gif">
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=your-github-yinzatious&amp;color=000000&amp;label=PEOPLE+WHO+STALK+ME+.ᐟ" alt=""></p>
