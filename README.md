@@ -1,5 +1,5 @@
 <p align="center"> 
- <img src="https://readme-typing-svg.demolab.com?font=Cinzel&Code&center=true&pause=1000&color=7D7D7DCA&width=435&lines=%22+You'll+never+meet+another+me.+%22;Drama+is+useless." alt="Typing SVG" </p> 
+ <img src="https://readme-typing-svg.demolab.com?font=Cinzel&Code&center=true&pause=1000&color=7D7D7DCA&width=435&lines=%22+Hate+is+the+greatest+obsession.+%22;You'll+never+meet+another+me." alt="Typing SVG" </p> 
     
   <p align="center">
   <img width="400" height="342" src="https://media.discordapp.net/attachments/910420166989475860/1439042228205916324/lv_0_20251115075308-ezgif.com-gif-maker.gif?ex=6945e703&is=69449583&hm=b6c35e9119f62de6d6d87cce201f67bb1a662b38b4cb0cf3afd758ddc6e2297f&=">
