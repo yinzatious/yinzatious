@@ -2,7 +2,7 @@
  <img src="https://readme-typing-svg.demolab.com?font=Cinzel&Code&center=true&pause=1000&color=7D7D7DCA&width=435&lines=%22+Hate+is+the+greatest+obsession.+%22;You'll+never+meet+another+me." alt="Typing SVG" </p> 
     
   <p align="center">
-  <img width="400" height="342" src="https://cdn.discordapp.com/attachments/910420166989475860/1456465937543860468/lv_0_20251115075308-ezgif.com-gif-maker-1.gif?ex=69625a5b&is=696108db&hm=9deb04a3ebf090fad331aded55985cc43ce0b91f1e9b8f1533d830b7c1b4290c&">
+  <img width="400" height="342" src="https://i.pinimg.com/originals/5e/9b/b8/5e9bb89d9a1074632147052cce050a10.gif">
     
 <p align="center"> <img width="380" height="380" src="https://pixelsafari.neocities.org/dividers/blackmirror.gif">
 <p align="center">       ʀᴇᴀᴅ ᴍʏ ᴘᴀᴛʀᴇᴏɴ ʙᴇꜰᴏʀᴇ ʙᴇᴄᴏᴍɪɴɢ ꜰʀɪᴇɴᴅꜱ
