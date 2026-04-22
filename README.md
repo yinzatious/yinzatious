@@ -1,5 +1,5 @@
 <p align="center"> 
- <img src="https://readme-typing-svg.demolab.com?font=Cinzel&Code&center=true&pause=1000&color=7D7D7DCA&width=435&lines=%22+Hate+is+the+greatest+obsession.+%22;You'll+never+meet+another+me." alt="Typing SVG" </p> 
+ <img src="https://readme-typing-svg.herokuapp.com?font=Cinzel&duration=3000&pause=1000&color=CACACAFF&center=true&vCenter=true&width=435&lines=1+4+3+%2C+I+love+you+!;Stray+kids+everywhere+.+.;All+around+the+world+!" alt="Typing SVG" </p> 
  
 <p align="center">
   <img src="https://i.pinimg.com/originals/5e/9b/b8/5e9bb89d9a1074632147052cce050a10.gif" width="400">
