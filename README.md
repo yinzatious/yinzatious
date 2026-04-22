@@ -14,7 +14,7 @@
 <p align="center">      rᥱᥲd mყ ρᥲtrᥱoᥒ bᥱforᥱ bᥱᥴomιᥒg frιᥱᥒds
  
 <p align="center">
-  <img src="https://64.media.tumblr.com/d039d433468fe3066c9b124523d65066/fc56a51fb5cb99dd-f0/s400x600/83f11a0a0c95bc10f09048f68fbcedec62ddd973.gifv" width="120">  <img src="https://64.media.tumblr.com/ef5a7a83df99e7dc107c66c8107c5e8b/0a08ac06dfb1054b-2c/s250x400/6f904b69f7bec3b580f58992a8c91cf967a0518d.gifv" width="120"> <img src="https://adriansblinkiecollection.neocities.org/n6.gif" width="120">
+  <img src="https://64.media.tumblr.com/ef5a7a83df99e7dc107c66c8107c5e8b/0a08ac06dfb1054b-2c/s250x400/6f904b69f7bec3b580f58992a8c91cf967a0518d.gifv" width="120">  <img src="https://64.media.tumblr.com/d039d433468fe3066c9b124523d65066/fc56a51fb5cb99dd-f0/s400x600/83f11a0a0c95bc10f09048f68fbcedec62ddd973.gifv" width="120"> <img src="https://adriansblinkiecollection.neocities.org/n6.gif" width="120">
 
   <p align="center">
   <img src="https://pixelsafari.neocities.org/dividers/blackthornyroses.gif" width="400">
