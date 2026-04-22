@@ -2,7 +2,7 @@
  <img src="https://readme-typing-svg.herokuapp.com?font=Cinzel&duration=3000&pause=1000&color=CACACAFF&center=true&vCenter=true&width=435&lines=1+4+3+%2C+I+love+you+!;Stray+kids+everywhere+.+.;All+around+the+world+!" alt="Typing SVG" </p> 
  
 <p align="center">
-  <img src="https://i.pinimg.com/originals/5e/9b/b8/5e9bb89d9a1074632147052cce050a10.gif" width="400">
+  <img src="https://i.pinimg.com/originals/25/43/21/254321c379a85901c01896151a246431.gif" width="400">
 </p>
 
 <p align="center">
