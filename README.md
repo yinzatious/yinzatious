@@ -9,7 +9,7 @@
   <img src="https://pixelsafari.neocities.org/dividers/blackmirror.gif" width="400">
 </p>
 
-<p align="center">      rυᥣᥱr of thᥱ mιᥒd ρᥲᥣᥲᥴᥱ . 
+<p align="center">      Ɽ𐌵𐌋𐌄Ɽ   Ꝋ𐌅 𐌕𐋅𐌄 𐌌𐌉𐌍𐌃 𐌐𐌀𐌋𐌀𐌂𐌄 . 
 <p align="center">      ᥣokι, jᥲx, ᥣo'ᥲk, ᥲᥒd ᥱᥣᥣιot ᥲᥣdᥱrsoᥒ fιᥴtιoᥒkιᥒ
 <p align="center">      rᥱᥲd mყ ρᥲtrᥱoᥒ bᥱforᥱ bᥱᥴomιᥒg frιᥱᥒds
  
