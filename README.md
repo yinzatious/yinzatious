@@ -9,11 +9,12 @@
   <img src="https://pixelsafari.neocities.org/dividers/blackmirror.gif" width="400">
 </p>
 
- <p align="center">      ʟᴏᴋɪ ғɪᴄᴛɪᴏɴᴋɪɴ
-<p align="center">       ʀᴇᴀᴅ ᴍʏ ᴘᴀᴛʀᴇᴏɴ ʙᴇꜰᴏʀᴇ ʙᴇᴄᴏᴍɪɴɢ ꜰʀɪᴇɴᴅꜱ
+<p align="center">      rυᥣᥱr of thᥱ mιᥒd ρᥲᥣᥲᥴᥱ . 
+<p align="center">      ᥣokι, jᥲx, ᥣo'ᥲk, ᥲᥒd ᥱᥣᥣιot ᥲᥣdᥱrsoᥒ fιᥴtιoᥒkιᥒ
+<p align="center">      rᥱᥲd mყ ρᥲtrᥱoᥒ bᥱforᥱ bᥱᥴomιᥒg frιᥱᥒds
  
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/910420166989475860/1439529507248930900/blinkiesCafe-dq.gif?ex=69c399d3&is=69c24853&hm=80b77c74d7fcf5dd4390b410c10a90692f775714aa7b9ad9be09cc0066c3db1c&=" width="120">  <img src="https://media.discordapp.net/attachments/910420166989475860/1439529513384939560/blinkiesCafe-o9.gif?ex=69c399d5&is=69c24855&hm=19a0b98e5b3c94afc69ccedd38167b8fc18c3270051c39a306c839e52939bfa6&=" width="120"> <img src="https://media.discordapp.net/attachments/910420166989475860/1439529527872323656/blinkiesCafe-jT.gif?ex=69c399d8&is=69c24858&hm=2b72427d86ec28077be8cb62727cf0b24150a0e00af13ff3d40ddb465b7e887a&=" width="120">
+  <img src="https://64.media.tumblr.com/d039d433468fe3066c9b124523d65066/fc56a51fb5cb99dd-f0/s400x600/83f11a0a0c95bc10f09048f68fbcedec62ddd973.gifv" width="120">  <img src="https://64.media.tumblr.com/ef5a7a83df99e7dc107c66c8107c5e8b/0a08ac06dfb1054b-2c/s250x400/6f904b69f7bec3b580f58992a8c91cf967a0518d.gifv" width="120"> <img src="https://adriansblinkiecollection.neocities.org/n6.gif" width="120">
 
   <p align="center">
   <img src="https://pixelsafari.neocities.org/dividers/blackthornyroses.gif" width="400">
