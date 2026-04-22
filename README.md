@@ -20,7 +20,7 @@
   <img src="https://pixelsafari.neocities.org/dividers/blackthornyroses.gif" width="400">
 </p>
 
-<p align="center"><img src="https://komarev.com/ghpvc/?username=your-github-yinzatious&amp;color=000000&amp;label=𖣂+.+VARIANTS" alt=""></p>
+<p align="center"><img src="https://komarev.com/ghpvc/?username=your-github-yinzatious&amp;color=000000&amp;label=✦+.+STAYS " alt=""></p>
               
 #
 
