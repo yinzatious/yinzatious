@@ -1,8 +1,11 @@
+<p align="center">
+  <img src="https://64.media.tumblr.com/bed44fdfffdc473d2726e404f5924d54/c9c7428f194afa8a-37/s1280x1920/8f5aab276ea97aca3786153845b2449d24c011d0.pnj" width="600">
+
 <p align="center"> 
  <img src="https://readme-typing-svg.herokuapp.com?font=Cinzel&duration=3000&pause=1000&color=CACACAFF&center=true&vCenter=true&width=435&lines=1+4+3+%2C+I+love+you+!;Stray+kids+everywhere+.+.;All+around+the+world+!" alt="Typing SVG" </p> 
  
 <p align="center">
-  <img src="https://i.pinimg.com/originals/17/ae/3b/17ae3b63ae3c57facf3b53d267aa967f.gif" width="400">
+  <img src="https://64.media.tumblr.com/25232611053cc288a3ace493a700a5ef/cf260f12be0d3176-a3/s1280x1920/86a7475754312b111e231b4fb5ec197bd83cce94.pnj" width="400">
 </p>
 
 <p align="center">
@@ -19,6 +22,9 @@
   <p align="center">
   <img src="https://64.media.tumblr.com/e5f30285021cc57bad0065a710ee5a0a/6855a7267d7ef035-36/s2048x3072/4969aff53c4cc3654cbb5bf87186b42f2cf62c55.gifv" width="400">
 </p>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/9380836645e7626ae0e01332d9b3275c/c9c7428f194afa8a-33/s1280x1920/e2c8ec7424499f9d223671aca47aa83343e8aebc.pnj" width="600">
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=your-github-yinzatious&amp;color=000000&amp;label=✦+.+STAYS " alt=""></p>
               
