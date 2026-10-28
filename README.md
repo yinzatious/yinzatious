@@ -1,7 +1,7 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/bed44fdfffdc473d2726e404f5924d54/c9c7428f194afa8a-37/s1280x1920/8f5aab276ea97aca3786153845b2449d24c011d0.pnj" width="600">
 
-  <p align="center"><img src="https://komarev.com/ghpvc/?username=your-github-yinzatious&amp;color=171717&amp;label=✦+.+STAYS " alt=""></p>
+  <p align="center"><img src="https://komarev.com/ghpvc/?username=your-github-yinzatious&amp;color=000000&amp;label=✦+.+STAYS " alt=""></p>
 
 <p align="center"> 
  <img src="https://readme-typing-svg.herokuapp.com?font=Eagle+Lake&duration=2800&pause=50&color=C5C5C5&center=true&vCenter=true&width=435&lines=Lover%2C+lover%2C+lover+is+hurt;'cause+she+went+away.;Loved+her%2C+loved+her%2C+loved+her;so+much+until+that+rainy+day.;Lover%2C+lover%2C+lover+dies;'cause+there's+no+way.;Lover%2C+lover%2C+love+is+gone%2C;no+matter+what+I+say." </p> 
