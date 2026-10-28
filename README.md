@@ -12,7 +12,7 @@
 
 
 <p align="center"> 
- <img src="https://readme-typing-svg.herokuapp.com?font=Sue+Ellen+Francisco&size=25&duration=2800&pause=50&color=C5C5C5&center=true&vCenter=true&repeat=false&width=435&lines=loki+fictionkin" </p>
+ <img src="https://readme-typing-svg.herokuapp.com?font=Sue+Ellen+Francisco&size=25&duration=2800&pause=50&color=C5C5C5&center=true&vCenter=true&repeat=false&width=435&lines=loki+fictionkin+/+hyunjin+ult" </p>
  <p align="center"> 
 <p align="center"> 
  <img src="https://readme-typing-svg.herokuapp.com?font=Sue+Ellen+Francisco&size=25&duration=2800&pause=50&color=C5C5C5&center=true&vCenter=true&repeat=false&width=435&lines=read+my+patreon+before+becoming+friends" alt="Typing SVG" </p>
